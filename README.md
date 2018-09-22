@@ -1,4 +1,4 @@
-# Fuk-U-Pay-Me
+# FUPM
 As the name suggests 
 Post Malone 
 Childish Gambino 
